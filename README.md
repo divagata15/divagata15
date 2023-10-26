@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @divagata15
+- 👀 I’m maior diva do brasil
+- 🌱 
+- 💞️ .
+- 📫 
